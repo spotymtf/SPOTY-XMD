@@ -41,6 +41,11 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 ---
 
+***BOT FEATURE ⤵️***
+
+| Menu ⁠➜ | Status Save + Send | Group | ChatBot | Downloading | Antidelete | Ai | Viewonce | Fun | Status Reply | Status Reacts | HeartReacts | Autoreacts | Call Rejecter 
+|---|---|---|---|---|---|---|---|---|---|---|---|---|---|
+| Work ➜ |✅|✅|✅|✅|✅|✅|✅|✅|✅|✅|✅|✅|✅|
 
 ## 🪀 WHATSAPP CHANNEL 
 STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
